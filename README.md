@@ -2,6 +2,8 @@
 
 🎶 *SkyBeats – SB*
 
+<img width="1024" height="1302" alt="image" src="https://github.com/user-attachments/assets/cbccd0eb-7ccf-41bb-a39f-bfba7103535a" />
+
 🗓 תאריך:
 📅 לועזי: 04/12/2025 | 🕘 שעה נוכחית: 13:00 (+02)
 📆 עברי: ב’ בכסלו תשפ״ו
